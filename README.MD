@@ -1,1 +1,1 @@
-A oportunidade de participar de um curso como esse é indescritível, simplismente estou amando!!!
+A oportunidade de participar de um curso como esse é indescritível, simplesmente amando!!!
